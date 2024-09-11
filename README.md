@@ -4,8 +4,9 @@
 ---
 Wishlist of Places to go
 1. Japan
-2. New Zealand
-3. Switzerland
+2. Paris,France
+3. New Zealand
+4. Switzerland
 
 My Social Media:
 
