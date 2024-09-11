@@ -12,3 +12,11 @@ My Social Media:
 
 -[Facebook](https.//ww.facebook.com/itztheaaa_/)
 -[Instagram](https://www.instagram.com/itztheaaa_/)
+
+My Interests:
+1. Swimming
+2. Basketball
+3. Singing
+4. Listening to Music
+5. siya.
+
