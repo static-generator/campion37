@@ -10,7 +10,7 @@ Wishlist of Places to go
 
 My Social Media:
 
--[Facebook](https.//ww.facebook.com/itztheaaa_/)
+-[Facebook](https://www.facebook.com/itztheaaa/)
 -[Instagram](https://www.instagram.com/itztheaaa_/)
 
 My Interests:
