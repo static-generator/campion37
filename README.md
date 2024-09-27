@@ -1,13 +1,16 @@
 # campion37
-## Althea Gerobin Talagtag
+## Althea Gerobin Talagtag (Thea)
 >- Parkview Executive Town Homes , San Felipe, Naga City
 ---
 Wishlist of Places to go
 1. Japan
 2. Paris, France
 3. New Zealand
-4. Switzerland
-5. Bahay niya 
+4. Korea
+5. Switzerland
+6. Italy
+7. England,London
+8. Bahay niya 
 
 My Social Media:
 
